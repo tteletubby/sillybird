@@ -1,1 +1,1 @@
-dont mind this, just a collection of some memes :)
+dont mind this, just a collection of memes
